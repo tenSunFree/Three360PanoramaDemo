@@ -14,10 +14,10 @@ https://jackchan1999.github.io/2017/05/01/android/VR%E5%85%A8%E6%99%AF%E5%9B%BE%
                               
 預覽
 --------
-![image](https://i.imgur.com/kg4sa3N.png)                                      
+![image](https://i.imgur.com/j7eyaxn.jpg)                                      
 
-![image](https://i.imgur.com/PmUMXT4.png)                                      
+![image](https://i.imgur.com/mjIHstI.png)                                      
 
-![image](https://i.imgur.com/PmUMXT4.png)                                      
+![image](https://i.imgur.com/lQHjNGC.png)                                      
 
-![image](https://i.imgur.com/PmUMXT4.png)
+![image](https://i.imgur.com/pXUkzGs.png)
